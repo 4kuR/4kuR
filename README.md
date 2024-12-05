@@ -1,8 +1,6 @@
 <img src="https://i.ibb.co/Xy90w8z/AboutMe.png" alt="Twitch Panel Image" style="width: 100%; max-width: 100%;">
 
-### About Me  
-
-Hello! My name is **[Your Name]**, and I’m proud to introduce myself as someone who values **loyalty, friendship, and connection** above all else. Born and raised in **Finland**, I carry with me a deep appreciation for the values that shape my culture: **honesty, humility, and resilience**. These traits, combined with my natural inclination to **listen and support**, have shaped me into someone who thrives on building meaningful and lasting relationships.  
+Hello! My name is **Arukiya**, and I’m proud to introduce myself as someone who values **loyalty, friendship, and connection** above all else. Born and raised in **Finland**, I carry with me a deep appreciation for the values that shape my culture: **honesty, humility, and resilience**. These traits, combined with my natural inclination to **listen and support**, have shaped me into someone who thrives on building meaningful and lasting relationships.  
 
 As a friend, I strive to be the kind of person you can **trust in any situation**. Whether life is filled with joy or challenges, I aim to be **present, reliable, and empathetic**. I don’t see myself as just a fair-weather companion—I’m here for the moments that matter most, and I’m ready to **listen without judgment**, offer advice when needed, or simply be a quiet source of comfort. Over the years, many people have described me as having a **“therapeutic touch”**, a unique ability to help others feel **seen, heard, and understood**. That’s something I take great pride in because, for me, **helping others through their challenges is one of life’s most fulfilling purposes**.  
 
