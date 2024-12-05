@@ -1,4 +1,4 @@
-<img src="https://panels.twitch.tv/panel-763109066-image-8fed4a3d-8b5f-42d0-982f-3e4517f6e84a" alt="Twitch Panel Image" style="width: 100%; max-width: 100%;">
+<img src="https://i.ibb.co/Xy90w8z/AboutMe.png" alt="Twitch Panel Image" style="width: 100%; max-width: 100%;">
 
 Olen suomalainen mies, ja koen, että lojaalisuus ja ystävyys ovat vahvuuksiani. Ystävänä pyrin aina olemaan sellainen, johon voi luottaa ja turvautua missä tahansa tilanteessa. En ole vain se, joka on paikalla hyvissä hetkissä, vaan se, joka kuuntelee, tukee ja ymmärtää syvällisemmin. Monet sanovat, että minulla on terapeuttinen ote – osaan kuunnella ja auttaa ihmisiä heidän haasteissaan, mikä tekee minusta usein sen, jolle uskoudutaan.
 
